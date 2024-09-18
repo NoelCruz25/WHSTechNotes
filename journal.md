@@ -1,1 +1,2 @@
-
+# September 18, 2024 
+The challenges we encountered when doing the maze was trying to get the lines perfect, it was hard to do it and we couldn't make it straight. To overcome or resolve this problem, we used a ruler to make straight lines and we used the inches on the ruler to see how long our lines would be. I made a few mistakes because I messed up some of the lines and I wasn't accurate. I learned from my mistake and was able to make the line perfectly, learning from mistakes is good because you can practice to do better. 
